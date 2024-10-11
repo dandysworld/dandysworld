@@ -1,1 +1,1 @@
-i am not intrested in dandys world anymore. but i am still keeping the username for flexing purposes heh. 
+![](https://animatictism.carrd.co/assets/images/image18.png?v=621d5ef4) 
