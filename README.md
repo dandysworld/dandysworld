@@ -1,2 +1,1 @@
-![](https://github.com/user-attachments/assets/9f94b91f-226c-4660-8a20-548892cf3a94)
-thank you MAL for this MASTERPIECE💜
+![1000080147](https://github.com/user-attachments/assets/ee622e70-3248-4122-920f-b2347f291a9e)
