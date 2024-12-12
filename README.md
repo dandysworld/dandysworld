@@ -1,1 +1,4 @@
-![1000002307](https://github.com/user-attachments/assets/38be9ece-2ce8-4cc5-ad86-21ccf2297c7e)
+[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdandysworld&count_bg=%23ECDFBF&title_bg=%234C5363&icon=&icon_color=%23FFFFFF&title=expendables&edge_flat=false)](https://hits.seeyoufarm.com)
+<p align="center">
+    <img width="500" src="https://files.catbox.moe/dhl9q2.gif" alt="painter">
+</p>
