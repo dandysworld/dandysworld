@@ -1,9 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Poppins&pause=1000&color=D298A9&center=true&vCenter=true&width=435&lines=You+are+so+goddamn+gullible.)](https://git.io/typing-svg)
-
-[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fdandysworld&count_bg=%23D298A9&title_bg=%23FCF0E4&icon=&icon_color=%23E7E7E7&title=expendables+&edge_flat=false)](https://hits.seeyoufarm.com)
-<p align="center">
-    <img width="500" src="https://files.catbox.moe/inv4ob.gif" alt="painter"> 
-<p align="center">Pirate skulls and bones
-Sticks and stones and weed and bongs
-Running when we hit 'em
-Lethal poison for the system</p> 
+![](https://64.media.tumblr.com/f48d4f78aa428631caf227e9d1ceac5b/0c88fac5502dfd6c-28/s100x200/1430d77ad632ab8bdcf4a22456490e6fdf05013c.gifv) ![](https://64.media.tumblr.com/5e29d6f3984d6d4d29d0ae034a102db4/0c88fac5502dfd6c-37/s100x200/8cd170a22990eb4b9c02c0768d7caa4cd23e123d.gifv)
