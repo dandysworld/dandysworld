@@ -1,1 +1,1 @@
-![art by monotoxist](https://github.com/user-attachments/assets/44cb4154-20ae-426d-b941-453b160ec9f1)
+![1000012048](https://github.com/user-attachments/assets/d2db9a43-9a84-49cf-b53f-7304b97758aa)
