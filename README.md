@@ -1,3 +1,3 @@
-![1000012602](https://github.com/user-attachments/assets/956ff786-1d6c-4b59-a360-6115bb5af33a)
+![1000012603](https://github.com/user-attachments/assets/605bbe9a-0e8a-490a-89da-71a1f301da17)
 
 <p align="center">my only dni is if you make 'im gonna touch you' jokes that triggers me thanks/srs
