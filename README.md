@@ -1,4 +1,5 @@
-![yeehaw](https://files.catbox.moe/wxks79.png)
+![draw my oc](https://github.com/user-attachments/assets/26c19edd-6168-473b-b98c-5247a2373ff3)
+
 
 
 <p align="center">i love my gnb oc
