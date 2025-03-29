@@ -3,7 +3,7 @@
 
 
 <p align="center">i love my gnb oc
-<p align="center">Please avoid making 'im gonna touch you’ or SA jokes around me as i can have uncomfortable feelings/triggered by it.
+<p align="center">Please avoid making 'im gonna touch you’ jokes around me since i can get triggered by it.
   
 ![](https://files.catbox.moe/x401e6.png)
 
