@@ -3,6 +3,6 @@
 
 
 
-<p align="center">i love klaus
+<p align="center">ATTENTION ALL GAMERS! 🎮🕹️ Are you ready for the ultimate showdown in the virtual world? Get your controllers ready, it's time to battle it out!
 <p align="center">Please avoid making 'im gonna touch you’ jokes around me since i can get triggered by it.
   
