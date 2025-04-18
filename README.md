@@ -1,4 +1,17 @@
-![1000016035](https://github.com/user-attachments/assets/ec41f97e-5c53-4177-b5a7-eb71235113bc)
+![](https://files.catbox.moe/rptahv.png)
 
 
-<h6 align="center">how to center a link gng</h6>
+<h6 align="center">bernadette , you are my liberty</h6>
+
+
+
+<h6 align="center">‎ ‎ ‎ </h6>
+
+![](https://files.catbox.moe/91j2r9.png)
+
+<h6 align="center"> I celebrate the day that you changed my history </h6>
+
+
+<h6 align="center">‎ ‎ ‎ ‎ ‎</h6>
+
+![](https://files.catbox.moe/hsv4ny.png)
