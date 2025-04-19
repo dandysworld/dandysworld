@@ -15,3 +15,18 @@
 <h6 align="center">‎ ‎ ‎ ‎ ‎</h6>
 
 ![](https://files.catbox.moe/hsv4ny.png)
+
+
+<h6 align="center">‎ ‎ ‎ </h6>
+
+
+<h6 align="center">‎ ‎ ‎ </h6>
+
+
+<h6 align="center">‎ ‎ ‎ </h6>
+
+
+![](https://files.catbox.moe/tzcpao.png)
+
+
+<h6 align="center">‎ my cute retrostudio avatar</h6>
