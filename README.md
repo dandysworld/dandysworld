@@ -23,7 +23,7 @@
 <h6 align="center">‎ ‎ ‎ </h6>
 
 
-<h6 align="center">‎cute my mental health is worsening again i feel like cutting my friends off what the hell</h6>
+<h6 align="center">   </h6>
 
 
 
