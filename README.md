@@ -9,7 +9,7 @@
 
 ![](https://files.catbox.moe/b0l14g.gif)
 
-<h6 align="center"> oh how i love bloodytea</h6>
+<h6 align="center"> BLOODYTEA SLOPPY KISS </h6>
 
 
 <h6 align="center">‎ ‎ ‎ ‎ ‎</h6>
